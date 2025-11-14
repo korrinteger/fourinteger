@@ -7,7 +7,7 @@ he/him
 
 check links byi
 
-vox's 4th biggest fan
+**RADIOAPPLE DNI**
 
 <a href="https://fourinteger.atabook.org">ata</a> , <a href="https://korrinteger.straw.page">sp</a> , <a href="https://en.pronouns.page/@korrinteger">prnspage</a>
 #
